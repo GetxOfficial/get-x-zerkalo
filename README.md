@@ -7,11 +7,11 @@
 			<td>Промокоды</td>
 		</tr>
 		<tr>
-			<td><strong>🎮<a href="https://levelx.top/t52b20c3d">Официальный сайт Get x</a></strong></td>
+			<td><strong>🎮<a href="https://lvlx.pw/t52b20c3d">Официальный сайт Get x</a></strong></td>
 			<td>get777x</td>
 		</tr>
 		<tr>
-			<td><strong>🌐<a href="https://levelx.top/t52b20c3d">Рабочее зеркало Гет Икс</a></strong></td>
+			<td><strong>🌐<a href="https://lvlx.pw/t52b20c3d">Рабочее зеркало Гет Икс</a></strong></td>
 			<td>get777x</td>
 		</tr>
 	</tbody>
